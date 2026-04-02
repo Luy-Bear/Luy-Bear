@@ -24,3 +24,7 @@ Although working full time in an unrealted field, I am still practicing and lear
 - Finish my portfolio to a standard I am happy with
 - Break into the computer science job market and begin my career 
 
+### ☄️Thigns I do in my spare time
+- Like to stay active at the gym & with outdoor activities
+- Enjoy a movie and a good read
+- Love trying and eating good food
